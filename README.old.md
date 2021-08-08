@@ -1,2 +1,0 @@
-# shari-portfolio
-Art exhibit
